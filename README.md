@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Théodore Jeanne !
+- 💞️ I love make code !
+- 👀 I’m the account of soleil des chats (my first account)
